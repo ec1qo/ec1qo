@@ -1,4 +1,3 @@
-## 1
 
 <img width="20" height="20" alt="0fb47fba" src="https://github.com/user-attachments/assets/afd07bea-22f4-4015-b9aa-2b1117b09649" /> sup, I go by stag or echo. not much of a talker, but I don't mind have some small talk, as well as c+h. I prefer whispers over regular chat, especially when it comes to long conversations, so please, keep that in mind.
 
