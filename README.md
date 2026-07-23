@@ -3,7 +3,8 @@
 
 I love making cosplays and skins in general (unfortunately, I don't always have the energy for it). if you want to be my friend, then sure! I am open to meeting new people, though again, I might not have the energy to always keep in touch with ya.
 
-dunno what else to write here, so bye and have a great day!
+dunno what else to write here, so bye and have a great day! <img width="20" height="20" alt="902eb213" src="https://github.com/user-attachments/assets/c3a95400-8c2c-4051-be2e-3fd363c209d7" />
+
 
 copytown sucks 
 
