@@ -1,3 +1,8 @@
+<img width="1308" height="340" alt="94e4dc147645984b6e57f752f5d65f8e" src="https://github.com/user-attachments/assets/1cb83a0e-4f10-4ffd-aa07-4d6929287035" />
+
+ <img width="150" height="20" alt="0124-stars" src="https://github.com/user-attachments/assets/1544edb0-2b3d-4413-94d5-e18cd1cb6bcb" />
+
+
 
 <img width="20" height="20" alt="0fb47fba" src="https://github.com/user-attachments/assets/afd07bea-22f4-4015-b9aa-2b1117b09649" /> sup, I go by stag or echo. not much of a talker, but I don't mind have some small talk, as well as c+h. I prefer whispers over regular chat, especially when it comes to long conversations, so please, keep that in mind.
 
@@ -15,6 +20,6 @@ copytown sucks
 
 <img width="100" height="55" alt="blinkblink" src="https://github.com/user-attachments/assets/07bb3f5a-f5eb-4832-960f-63ed401bb067" /> <img width="99" height="63" alt="tumblr-5fdd5ca296eef37b8991b1ad43172f5a-677c0222-100" src="https://github.com/user-attachments/assets/7c276d78-5bb6-4f6b-bc3a-947642091492" /> <img width="99" height="56" alt="tumblr_pbbd1hGBbb1xz2nuuo2_100" src="https://github.com/user-attachments/assets/4041b0f0-62d2-4a12-bbd1-55c0f858c6d1" /> <img width="100" height="58" alt="tumblr_f7a17f59e95eb7fcd017593b883dcc1e_ff67e135_100" src="https://github.com/user-attachments/assets/df4c85a2-b6d1-4069-a63d-99b1bb7bac33" /> <img width="97" height="57" alt="Tumblr-l-489048823258388" src="https://github.com/user-attachments/assets/6070051c-920c-4058-ad81-a5a46d0595cf" />
 
-
+<img width="575" height="73" alt="937bcf07" src="https://github.com/user-attachments/assets/67ea354c-07ef-4188-98d0-57f66c237af1" />
 
 
